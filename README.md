@@ -1,0 +1,1 @@
+# Praktikum-Citra-Digital-5-6
